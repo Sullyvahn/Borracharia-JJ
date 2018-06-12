@@ -1,1 +1,2 @@
-# Projeto-POO1-BorrachariaJJ
+# Projeto Borracharia JJ
+Edições em Juliano-Edits Brench!
